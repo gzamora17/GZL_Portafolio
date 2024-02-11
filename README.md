@@ -1,2 +1,2 @@
-# Portafolio profesionaL
+# Portafolio profesional
 Gonzalo Zamora López
